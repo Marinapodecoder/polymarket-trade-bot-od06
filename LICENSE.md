@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket exclusive Trading Bot: event-driven-trading & API-integration, the #1 trading-bot. Includes event-driven-trading and
 
 
 
